@@ -1,2 +1,0 @@
-# SGB
-Gw ganteng asli
